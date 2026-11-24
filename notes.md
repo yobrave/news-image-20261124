@@ -1,4 +1,4 @@
-# World News Notes — Monday, 24 November 2026
+# World News Notes — Tuesday, 24 November 2026
 
 Material gathered via Wayback Machine snapshots of two major news front pages for
 24 November 2026: BBC News front page (00:46:44 UTC) and AP News home page
